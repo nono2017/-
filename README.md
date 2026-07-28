@@ -10,3 +10,5 @@
 ##### 2\.[看](https://nono2017.github.io/-/毁灭地球.html)
 
 ##### 3\.[看](https://nono2017.github.io/-/大臭哥变换.html)
+
+##### 4\.[看](https://nono2017.github.io/-/谷歌经典小游戏.html)
