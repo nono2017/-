@@ -11,6 +11,6 @@
 
 ##### 4\.[看](https://nono2017.github.io/-/谷歌经典小游戏.html)
 
-##### 5\.正在做
+##### 5\.[看](https://nono2017.github.io/-/谷歌经典小游戏.html)
 
-## 其他文件请[打开我们的仓库](https://github.com/nono2017/-)
+## 其他文件请[打开我们的仓库](https://github.com/nono2017/-/华为dog.md)
